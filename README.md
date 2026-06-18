@@ -1,6 +1,6 @@
 ## 🌸 Hi there, I'm Andrea!
 
-I'm a **Software Engineering student** at the University of Málaga. ✨ 
+I'm a ✨**Software Engineering student**✨ at the University of Málaga.  
 I genuinely enjoy learning new things, and I love bringing ideas to life (with a little help from the holy grail of YouTube tutorials!). 
 
 
